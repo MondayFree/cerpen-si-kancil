@@ -1,4 +1,4 @@
-# Cerita Pendek Si Kancil
+# Petualangan Si Kancil
 Luji Ramdhan
 <br/><br/>
 ### Cerita ini terdiri dari 6 bagian :
